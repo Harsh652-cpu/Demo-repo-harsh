@@ -1,2 +1,2 @@
 # Demo-repo-harsh
-This is abhishek and Hozifa
+This is Hozifa Mehndi, Harsh Raj Varma and Abhishek Chauchan.
